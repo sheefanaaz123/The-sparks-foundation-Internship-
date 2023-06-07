@@ -30,6 +30,12 @@ https://www.linkedin.com/posts/sheefa-naaz_task3-thesparksfoundation-tsf-activit
 
 
 
+## COMPLETION CERTIFICATE
+
+![spark data science](https://github.com/sheefanaaz123/The-sparks-foundation-Internship-/assets/97973932/631f87a6-d0d6-4e52-a72f-f3865ae3a2ca)
+
+
+
 ## OFFER LETTER
 
 ![PD7FUDBYZV](https://github.com/sheefanaaz123/The-sparks-foundation-Internship-/assets/97973932/9d4d6f47-d2ce-49e3-b03b-1d9aff4b57d7)
